@@ -11,6 +11,6 @@
 想看日本AV免费资源，可以试试XXXFreeVideo、JavWatch和JavKing等平台，提供大量免费内容，且无需注册。通过搜索“日本AV免会员观看”或“日本AV高清无水印”等关键词，
 可以更快找到资源。使用时注意安全，避免广告和潜在风险。选择合适平台，享受高质量的免费视频同时保护隐私。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/te20250708/te14 ）</span>
 
 
